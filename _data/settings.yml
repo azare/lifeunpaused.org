@@ -8,9 +8,7 @@ google-ID: 'UA-112060364-2'
 
 menu:
 - {name: 'Donate',  url: 'donate'}
-- {name: 'Learning Resources', url: 'resources'}
-- {name: 'Sample Posts',       url: 'sample-posts'}
-- {name: 'Documentation',      url: 'documentation'}
+- {name: 'The Route', url: 'route'}
 - {name: 'About',              url: 'about'}
 - {name: 'Contact',            url: 'contact'}
 
