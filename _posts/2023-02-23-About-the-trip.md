@@ -18,9 +18,9 @@ a few National Parks as I head back to Saint Augustine, FL. The total trip shoul
 ## Challenges
 
 I hope to complete 3 IronButt Challenges during my trip.
-.1 1000 miles in 24hrs
-.  1500 miles in 36hrs
-.  Ulitmate Coast to Coast Challenge
+- 1000 miles in 24hrs
+ - 1500 miles in 36hrs
+  - Ulitmate Coast to Coast Challenge
 
 ## Donate
 
