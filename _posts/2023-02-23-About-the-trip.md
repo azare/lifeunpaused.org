@@ -4,7 +4,7 @@ title: "Ultimate Coast to Coast Motorcycle Adventure"
 author: "Erik Azar"
 categories: trip
 tags: [trip,kwtopb]
-image: BMWRearMABDR.jpeg
+image: LUPML0Logo.jpg
 ---
 
 This trip is to raise money for the American Cancer Society in honor of my mother who passed away on Feb 25, 2022 from Stage 4 Lung Cancer.
