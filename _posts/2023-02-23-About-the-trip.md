@@ -28,4 +28,4 @@ Please consider donating to the American Cancer Society on my [donation page](ht
 
 ## Follow the Journey!
 
-I live map will be available so you can track my journey from the southernmost point to the northernmost point of America.
+A live map will be available so you can track my journey from the southernmost point to the northernmost point of America.
