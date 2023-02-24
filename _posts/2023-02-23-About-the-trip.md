@@ -11,11 +11,11 @@ On February 25, 2023 my mother lost her short battle with Stage 4 Lung Cancer. S
 
 ## Overview
 
-On Monday, July 24, 2023 I'll begin this journey from Saint Augustine, FL as I ride south to Key West for the official starting location. From there I'll ride north through the midwest states, through Canada heading towards Fairbanks, AK, from there I'll pickup the Dalton Highway where I'll complete stage 1 of my journey when I arrive at the oil fields of Pruhdoe Bay, AK.
+Stage 1 - On Monday, July 24, 2023 I'll begin this journey from Saint Augustine, FL as I ride south to Key West for the official starting location. From there I'll ride north through the midwest states, through Canada heading towards Fairbanks, AK, from there I'll pickup the Dalton Highway, a desolate road (the term “road” used loosely!) that runs 414 miles from just north of Fairbanks to just south of the Arctic Ocean in the oil fields of Deadhorse (Pruhdoe Bay), AK. It's none as one of the worlds most deadliest roads.
 
-After I get a few hours of rest I'll back down the Dalton Highway through Fairbanks, AK heading towards Whitehorse, Yukon, CA where I'll head north up towards the Dempster Highway to my stage 2 destination of Tuktoyaktuk, Northwest Territories, CA where I'll ride out to the Arctic Ocean and take a quick swim.
+Stage 2 - After resting for a few hours I'll back down the Dalton Highway through Fairbanks then head towards Whitehorse, Yukon, CA. I'll head north towards the Dempster Highway to my stage 2 destination of Tuktoyaktuk, Northwest Territories, CA where I'll ride out to the Arctic Ocean and take a quick swim.
 
-Stage 3 will begin the journey home as I head south to Yellowstone National Park in Wyoming, Arches, Bryce Canyon, and Zion National Parks in Utah, Whitesands National Park in New Mexico, Big Bend National Park in Texas, and then head East towards Saint Augustine, FL to home.
+Stage 3 - After spending the night in Tuktoyaktuk I'll begin the journey home heading south to visit Yellowstone National Park in Wyoming, Arches, Bryce Canyon, and Zion National Parks in Utah, Whitesands National Park in New Mexico, Big Bend National Park in Texas, and then head East towards Saint Augustine, FL for home.
 
 The total trip shuold take around 5 weeks and cover over 14,000 miles.
 
