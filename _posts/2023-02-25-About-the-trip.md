@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Ultimate Coast to Coast Motorcycle Adventure"
+title: "The Ultimate Coast to Coast Motorcycle Adventure"
 author: "Erik Azar"
 categories: trip
 tags: [trip,kwtopb]
