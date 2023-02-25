@@ -1,5 +1,8 @@
 # Site Build Settings
 
+domain: lifeunpaused.org       # if you want to force HTTPS, specify the domain without the http at the start, e.g. example.com
+url: https://lifeunpaused.org
+
 # jekyll-paginate configuration
 paginate:            5
 
