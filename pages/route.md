@@ -1,6 +1,6 @@
 ---
 layout: category
-title: Route
+title: The Route
 category: route
 permalink: /route
 ---
