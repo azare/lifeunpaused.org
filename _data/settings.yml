@@ -4,7 +4,8 @@ disqus:
   disqus_shortname: 'millennial-3'
 
 # If you are not using Google Analytics, please change 'google-ID' to an empty string
-google-ID: 'G-EQ6Q891DGG'
+# google-ID: 'G-EQ6Q891DGG'
+google-ID: 'GTM-MD6K3LH'
 
 menu:
 - {name: 'Donate',  url: 'donate'}
