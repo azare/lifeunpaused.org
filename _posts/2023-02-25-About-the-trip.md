@@ -28,7 +28,7 @@ I hope to complete 3 IronButt Challenges during my trip:
 
 ## Donate
 
-Please consider donating to the American Cancer Society on my [donation page](https://bealungsaver.funraise.org/fundraiser/erik-azar).
+Please consider donating to the American Lung Association on my [donation page](https://bealungsaver.funraise.org/fundraiser/erik-azar).
 
 ## Follow the Journey!
 
