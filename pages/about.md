@@ -12,4 +12,4 @@ After speaking with others who've done the trip I felt confident this was doable
 
 
 
-To donate and find out additional information about the American Cancer Society, check out [ACS Donation Page](https://bealungsaver.funraise.org/fundraiser/erik-azar).
+To donate and find out additional information about the American Lung Association, check out [ALA Donation Page](https://bealungsaver.funraise.org/fundraiser/erik-azar).
