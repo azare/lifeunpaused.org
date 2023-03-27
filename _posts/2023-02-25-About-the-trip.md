@@ -17,7 +17,7 @@ Stage 2 - After resting for a few hours I'll back down the Dalton Highway throug
 
 Stage 3 - After spending the night in Tuktoyaktuk I'll begin the journey home heading south to visit Yellowstone National Park in Wyoming, Arches, Bryce Canyon, and Zion National Parks in Utah, Whitesands National Park in New Mexico, Big Bend National Park in Texas, and then head East towards Saint Augustine, FL for home.
 
-The total trip shuold take around 5 weeks and cover over 14,000 miles.
+The total trip shuold take around 5 weeks and cover over 15,000 miles.
 
 ## Challenges
 
