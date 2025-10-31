@@ -11,7 +11,7 @@ On February 25, 2022 my mother lost her short battle with Stage 4 Lung Cancer. S
 
 ## Overview
 
-Stage 1 - On Monday, July 24, 2023 I'll begin this journey from Saint Augustine, FL as I ride south to Key West for the official starting location. From there I'll ride north through the midwest states, through Canada heading towards Fairbanks, AK, from there I'll pickup the Dalton Highway, a desolate road (the term “road” used loosely!) that runs 414 miles from just north of Fairbanks to just south of the Arctic Ocean in the oil fields of Deadhorse (Pruhdoe Bay), AK. It's none as one of the worlds most deadliest roads.
+Stage 1 - On Monday, July 24, 2023 I'll begin this journey from Saint Augustine, FL as I ride south to Key West for the official starting location. From there I'll ride north through the midwest states, through Canada heading towards Fairbanks, AK, from there I'll pickup the Dxalton Highway, a desolate road (the term “road” used loosely!) that runs 414 miles from just north of Fairbanks to just south of the Arctic Ocean in the oil fields of Deadhorse (Pruhdoe Bay), AK. It's none as one of the worlds most deadliest roads.
 
 Stage 2 - After resting for a few hours I'll back down the Dalton Highway through Fairbanks then head towards Whitehorse, Yukon, CA. I'll head north towards the Dempster Highway to my stage 2 destination of Tuktoyaktuk, Northwest Territories, CA where I'll ride out to the Arctic Ocean and take a quick swim.
 
